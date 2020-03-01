@@ -1,12 +1,12 @@
 ---
 layout: post
 title: "1: The willful child, hole of light"
-date: 2020-02-03/28
+date: 2020-02-02 + 2020-02-29
 ---
 
 1: The willful child, hole of light
 
-February 2/February 28, 2020
+February 2/February 29, 2020
 
 
 From the Brothers Grimm, Household Tales, trans. Margaret Hunt:
