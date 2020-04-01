@@ -1,4 +1,8 @@
-
+---
+layout: post
+title: "2: Dreaming for remedies"
+date: 2020-03-31
+---
 
 Bury the days. Bury the days, for now, in time. Every day feels so alike here. Though I see no one, I still fear that they will see me. Even my neighbors can glimpse my face above the backyard gate. The clouds cast over the wires, the patterns puff above my head. Overtones of grey bleed across each other, in skin prints. The breath I inhale in this cold air is the bluest, and I exhale it to the shiver of my body. The wind clips my diaphragm; a calico cloth slides across my stomach. This is the possible air, cold. It is safe for now.
 
