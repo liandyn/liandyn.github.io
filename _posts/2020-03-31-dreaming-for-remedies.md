@@ -4,7 +4,7 @@ title: "2: Dreaming for remedies"
 date: 2020-03-31
 ---
 
-Bury the days. Bury the days, for now, in time. Every day feels so alike here. Though I see no one, I still fear that they will see me. Even my neighbors can glimpse my face above the backyard gate. The clouds cast over the wires, the patterns puff above my head. Overtones of grey bleed across each other, in skin prints. The breath I inhale in this cold air is the bluest, and I exhale it to the shiver of my body. The wind clips my diaphragm; a calico cloth slides across my stomach. This is the possible air, cold. It is safe for now.
+Bury the days. Bury the days, for now, in time. Every day feels so alike here. Though I see no one, I still fear that they will see me. Even my neighbors can glimpse my face above the backyard gate. The clouds cast over the wires, the patterns puff above my head. Overtones of grey bleed across each other, the lines of my hands. The breath I inhale in this cold air is the bluest, and I exhale it. The wind clips my diaphragm; a calico cloth slides across my stomach. This is the possible air, cold. It is safe for now.
 
 The mask will not protect me. That’s what many say. Some sources say that it is better than nothing, but its effectiveness varies. It can at least prevent others from catching the disease from me. I do not have the virus, I don’t think. 
 
@@ -33,6 +33,8 @@ Mishima planned his ritual suicide for a year before committing the act in his 1
 The gash cascades a dark red water. A slit, slide the finger alongside. Perhaps his masculinity is the spectre. A mask is itself a vulnerability, not a protection. The confessions are pressure points. Prod. The man himself appears as the cover, the surface, the shine.
 
 Hook the spine of the book from the opened page and drag the paper down. The edges come apart. They fray like a fire frozen in time. That was a diary.
+
+---
 
 I woke up on the porch of a tavern. I had fallen, my head recently coming out of a pain. The night lacquered purple on all untouched by light. The moon, high and white, singly assured my aliveness. A circle. Was it staring at me? Mocking me? It could be so perfect. 
 
@@ -80,15 +82,17 @@ What did it say?
 
 She began walking very rapidly. Her steps seemed to move lighter than before. After a while she turned around to wave to the young woman at the well. She had already left the well. She turned and looked in all directions but she was not anywhere to be seen. She remembered her words about stopping on her way and she started to run.
 
-It had gone. Did I see it jump into the fire? Or had the fire swallowed it? I believe in spirits, although I don’t see God. I feel God in vessels, a strategy of blood. Warm, waning winds. Spirits, I don’t know where they come from. Some unanswered cry in a memory, in a life no longer embodied. Calling after what could not face it in its period in flesh. Sickly, it leaves its body. The question seeks a container again, or else it dissipates into the air and returns when the dust can no longer hold it. I felt that I was in that spirit, my silent outpouring, my soul pooled somewhere in its misshapen face. The part that I could not see.
+It had gone. Did I see it jump into the fire? Or had the fire swallowed it? I believe in spirits, although I don’t see God. I feel God in vessels, a strategy of blood. Warm, waning winds. Spirits, I don’t know where they come from. Some unanswered cry in a memory, in a life no longer embodied. Calling after what could not face it in its flesh. Sickly, it leaves its body. The question seeks a container again, or else it dissipates into the air and returns when the dust can no longer hold it. I felt that I was in that spirit, my silent outpouring, my soul pooled somewhere in its misshapen face. The part that I could not see.
 
 Molly said, in a whisper, was it screaming?
 
-Our flesh moved slowly as we wandered in our minds. Screen. The visions kept altering, slanting the tiny hairs of our limbs. We looked up. Was it the wind?
+Our flesh moved slowly as we wandered in our minds. Screen. The visions altered, slanting the tiny hairs of our limbs. We looked up. Was it the wind?
 
 “Those blue skies, though, were unusual skies such as I might never see again in my life: one moment strung up high aloft, the next plunged to the depths; constantly shifting, a strange compound of lucidity and madness.”
 
 Mishima, Yukio. “Sun and Steel.” trans. John Bester.
+
+---
 
 I have drunk wine for several nights now. I keep returning to the evolving channels, news, videos, images, to see the world in my sedate position. I wish to dream in life, to daydream. To live among the black edges, vignettes like memories already recounted. The wine, red, teaches me what my body wants. To lie down and hold onto my surroundings. My clothes, my bed, my blanket. Like lovers they are. Surfaces. Surrender. I am beholden to touch, when I should feel. What are the things that reach my body?
 
