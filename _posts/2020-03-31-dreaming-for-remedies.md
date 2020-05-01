@@ -72,8 +72,6 @@ Let’s move away from the clamor.
 
 I had known Gabriel for a long time. He dwelled in my dreams. I found him in those rare moments in between scenes of voluble characters and imminent violence. The memory of an orange room filled with steam. Something about his back. His smooth, gray back and the line between his shoulder blades. He had a look that I could not steer away from. Blond, curly hair. The darkest brown eyes. Had we known each other from elsewhere? His origins I could not remember. I feared to show him my face. Despite my barriers, he remained close to me. He lived in the adobe homes of this desert, though he had moved here some time ago. He saw me when I looked at him, even if he did not look back. I’m not sure how he felt, but he remained close to me.
 
-We left the tavern to run by itself.
-
 Out in the dunes we sat together. Molly installed a fire. We closed our eyes. After minutes of the flame crushing the wood into cracks and ashes, a figure in a long skirt appeared. I could not make out its face, for it was always obscured by something. The light, perhaps. The darkness. Some screen of this vision. It danced around us. It shuffled between our bodies, its grey arms caressing the fire. Its garments brushed against our sitting bodies. I feared its presence. I could tell that it stared at me, though I could not stare back. I winced between watching it shift among us and shutting my eyes, wishing that it would leave. Finally I let go of my desire, and I sat in waiting as Gabriel and Molly did.
 
 It muttered a word. 
