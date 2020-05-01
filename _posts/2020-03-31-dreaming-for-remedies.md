@@ -62,7 +62,7 @@ I know something. Love is the only thing people want. All roads lead to it. I gu
 
 She hid her eyes under the big hat’s brim. She had seen everyone walk through that door. The tattered visions of every person haunted her. The sound of boots clattering on the floor, glasses clinking and shattering amid smoke. Dust, on a clear night like this. 
 
-The dust haze lingers between earth and sky and forms an opaque screen. The landscape exists inside the screen. On the other side of it and beyond.
+The dust haze lingers between earth and sky. The landscape exists inside the opaque screen. On the other side of it and beyond.
 
 The moon sings on its own, Gabriel said. We walked out together to see the light. Molly came behind us. 
 
